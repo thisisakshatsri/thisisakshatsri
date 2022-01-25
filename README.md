@@ -7,5 +7,4 @@ Hi there 👋
 - 💬 Ask me about Anything! Let's see what I've got.
 - 📫 How to reach me: @thisisakshatsri everywhere!
 - 😄 Pronouns: He/him
-- 
 
